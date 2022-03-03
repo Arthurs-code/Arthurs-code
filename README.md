@@ -1,5 +1,1 @@
-- 👋 Hi, I’m arthur (not the one from the cartoon)
-- 👀 I’m interested in living
-- 🌱 I’m currently learning absolutely nothing
-- 📫 How to reach me: add me on discord jviyy#4220
-- 😁also im a fucking dumbass 
+hi
